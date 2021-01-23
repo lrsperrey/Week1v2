@@ -2,7 +2,7 @@
 
 # LaKeisha Price
 
-## This homework assignment is all about me and I really have no idea on what I would like to write.  Not that I am a boring person however; when it comes to talk about myself my mind goes blank.  However, one fun thing that I like to learn more about and consider a hobby is history.  My focus this year is more on the community I was raised in.  It's located in Montgomery, AL and is called Hunter Station.  I have always felt there was a great history behind the community and it is a huge part of who I am.   
+## This homework assignment is all about me and I really have no idea on what I would like to write.  Not that I am a boring person however; when it comes to talking about myself my mind goes blank.  However, one fun thing that I like to learn more about and consider a hobby is history.  My focus this year is more on the community I was raised in.  It's located in Montgomery, AL and is called Hunter Station.  I have always felt there was a great history behind the community and it is a huge part of who I am.   
 
 ## Hunter Station History
 
