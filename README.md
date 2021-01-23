@@ -7,7 +7,6 @@
 ## Hunter Station History
 
 Oral History
-
 [Ms.Berry](https://lwlcdigitallib.alasu.edu/digital/collection/Oralhis/id/34/)
 
 Written History
