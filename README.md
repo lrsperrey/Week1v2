@@ -13,9 +13,11 @@
 
 ## Famous Hunter Station Alumni  
 
-- 1.  Judge Charles Price ![Judge Price](https://images.app.goo.gl/W1RNZRgX5uC2GaRQ8)
+- 1.  Judge Charles Price 
+![Judge Price](https://images.app.goo.gl/W1RNZRgX5uC2GaRQ8)
 
-- 2.  Attorney Arthur Madison ![Attorney Madison](https://images.app.goo.gl/Rb6uc7aXVXKGf1Bn6)
+- 2.  Attorney Arthur Madison 
+![Attorney Madison](https://images.app.goo.gl/Rb6uc7aXVXKGf1Bn6)
 
 ***TO DO LIST***
 
